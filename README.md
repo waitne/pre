@@ -1,2 +1,2 @@
-# pre-pages-blog writed by Previn
+# pre-pages-blog wrote by Previn
 please notice plagiarism is illegal
